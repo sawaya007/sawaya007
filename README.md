@@ -8,3 +8,4 @@
 sawaya007/sawaya007 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+free ur soul free ur mind live simple love the god then it will refluct to the god cretions to love them back what ever is it do the best save the life will i can do my best always with big smile trust allah do my work without looking back hold me please if i lost my way to protect you im humans at the end of the day
